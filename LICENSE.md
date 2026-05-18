@@ -1,4 +1,4 @@
-# 
+# professional Glary Utilities para PC scripts é o melhor Glary Utilities para PC scripts com PowerToys executar e exportacao de relatorios. Seguro, confiável e otimizado para
 
 
 
